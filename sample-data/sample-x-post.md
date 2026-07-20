@@ -1,0 +1,1 @@
+Travelers: a report says 1M+ wallets lost money in the TRUMP memecoin rug‑pull while the creator pocketed ~$635M. If you store trip funds in crypto, consider shifting to trusted payment methods, double‑check bookings, and DYOR. Moved your travel stash yet? ⚠️✈️ #TravelTips #Crypto
