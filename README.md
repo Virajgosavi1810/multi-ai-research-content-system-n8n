@@ -27,7 +27,7 @@ This workflow eliminates repetitive research work while maintaining high-quality
 ---
 # 🖼️ Workflow Layout
 
-![Workflow Architecture](images/blog-post-wordpress.png)
+![Workflow Architecture](images/multi-ai-agent-for-content-creation.png)
 
 ---
 
